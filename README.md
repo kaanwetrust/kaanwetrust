@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kaanwetrust
+- 👀 I’m interested in learning coding
+- 🌱 I’m currently learning 
+- Just a noob here
